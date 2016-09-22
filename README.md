@@ -1,0 +1,2 @@
+# computer-dog
+My ideas
